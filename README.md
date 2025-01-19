@@ -4,4 +4,4 @@ Intani D / intaniid
 Muhammad Fahry / muhammad-fahry
 Magfira Aini / magfiraaini
 Manarul Huda/ Manarulisme
-Ari Wilyan / ariwilyan
+Ari Wilyan / ariwilyan. 
